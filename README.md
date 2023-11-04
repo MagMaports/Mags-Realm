@@ -1,5 +1,5 @@
 # Mag's-Realm
-Sup welcome to my profile 
+<img width="504" alt="Group 1AHHH" src="https://github.com/MagMaports/Mags-Realm/assets/104656054/d8acef36-6df9-4d76-88c8-1b99c347db1a">
 
 i'm not known for anything yet {because i never did anything}
 
