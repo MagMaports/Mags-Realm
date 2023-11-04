@@ -1,2 +1,67 @@
-# Mags-Realm
-Welcome
+# Mag's-Realm
+Sup welcome to my profile 
+
+i'm not known for anything yet {because i never did anything}
+
+ummmm yea you can leave now
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ ......why you still here?
